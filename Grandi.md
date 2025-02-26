@@ -1,0 +1,1 @@
+Dios del la magia eterna. representa el poder arcano en este mundo

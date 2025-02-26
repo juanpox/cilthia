@@ -1,0 +1,1 @@
+Mago milenario, aun no se sabe si era una persona o un grupo de personas. De lo que se conoce de Merlín es que fue un gran mago seguidor de Grandi, se dice que fue bendecido por el mismísimo dios y le dio el bastón de el Árbol Milenario, un objeto mágico que permite al usuario usar hechizos de forma ilimitada. se dice que nació en el 32ac en Swodi,
