@@ -10,7 +10,7 @@ Ya que la party ignoro el árbol debería añadir un elemento del grupo de avent
 ## El silencio después de un combate
 - Los jugadores siguen caminando por el camino, y así de esa manera cae la noche. Ya después de ese evento contra los esqueletos no ha pasado mucho. Están frente a la entrada a Inereb ya terminaron su ronda. 
 	- Los reciben dos  "guardias" de el [[Departamento de Mercenarios Unidos|DMU]], están jugando póker. al verlos entrar, los detienen y les preguntan si son los guardias de la ruta.
-> 		- Bienvenidos a inereb, aqui tendran la oportunidad de poder descansar despues de tan largo viaje, jeje. despues de la plaza principal a la derecha se encuentra el barrio De Mercenarios Unidos
+> 		- Bienvenidos a [[Inereb]], aquí tendrán la oportunidad de poder descansar después de tan largo viaje, jeje. después de la plaza principal a la derecha se encuentra el barrio De Mercenarios Unidos
 
 
 
